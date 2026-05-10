@@ -6,3 +6,6 @@ if you have any issues contact chromev2 on Discord.
 This will not get you banned in any game!
 If in the even you do get banned it was not beacuse of my program!
 I DO NOT DO REFUNDS!
+
+DISCORD:
+https://discord.gg/a3C8nFWA6G
